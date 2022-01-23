@@ -32,6 +32,20 @@ Last but not the least have been part of Organizing Committee for the KIIT Fest.
 ![image](https://user-images.githubusercontent.com/50255261/150665589-a33a6b24-86fd-46aa-a5ed-22fa29c4759b.png)
 
 
+I also did training in Catia, Solid Works, Creo and ansys.
+
+![image](https://user-images.githubusercontent.com/50255261/150666858-19ebe659-06ff-4819-8e8c-3a0158ca17f9.png)
+
+![image](https://user-images.githubusercontent.com/50255261/150666854-67a52c32-f755-4a3a-b412-0c790afca1be.png)
+
+![image](https://user-images.githubusercontent.com/50255261/150666845-5b481b91-019f-4a26-a107-03fc646237bc.png)
+
+![image](https://user-images.githubusercontent.com/50255261/150666839-efbc263e-8c2e-446d-8576-52d993c31f2f.png)
+
+
+While working as a DevOps Engineer at Wipro, I did DevOps Professional Program Certificate.
+
+![image](https://user-images.githubusercontent.com/50255261/150667007-cc7f4a73-9e83-412d-aa36-62d09d05c179.png)
 
 
 
