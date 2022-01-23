@@ -1,5 +1,5 @@
 # Documents
-# This is my GitHub repository which contains all shorts of certificates (Co-Curricular and Extracurricular Activities) awarded to me during my graduation at KIIT University.
+# This is my GitHub repository which contains all shorts of certificates (Co-Curricular and Extracurricular Activities) awarded to me during my graduation and work.
 
 To start with, my first certificate was awarded for attending KIIT International Model United Nation (MUN).
 
